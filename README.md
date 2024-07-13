@@ -1,12 +1,8 @@
 - 👋 Hi, I’m @Hector2k24k24
-in roblox account for free- 👀 I’m interested in ...
-hacking- 🌱 I’m currently learning ...
-hacking- 💞️ I’m looking to collaborate on ...
-facebook/page/@jemboatanaciolavisore- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
-
-<!---
-Hector2k24k24/Hector2k24k24 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- im from Philippines
+- im 22 years old
+- my hobby is playing basketball and roblox
+-do you have link of hacking account in roblox? give me a link plss
+- if you want to givee me just chat me in facebook. @jemboatanacio my account
+- gmail/acc: uzumakidaks@gmail.com
+- have a nice dayyy♥️
